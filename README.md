@@ -1,5 +1,7 @@
 # 🇻🇳 Vietnam 2026 
 > ✈️ July 22, 19:10 Geneva
+>
+> [Google Maps](https://maps.app.goo.gl/Dv96DNc67hQurqmx9)
 
 ## Journey
 
