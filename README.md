@@ -1,140 +1,156 @@
 # 🇻🇳 Vietnam 2026 · Adventure Master Plan
-
 **Travelers:** Alice & Paris  
 **Dates:** July 23 — August 04, 2026 (13 days / 12 nights)  
-**Route:** Geneva (GVA) → Saigon (SGN) → Central Vietnam → North → Saigon → Geneva  
+**Route:** Geneva (GVA) → Saigon (SGN) → Da Nang Region → North Vietnam → Saigon → Geneva  
 **Departure Flight:** July 22, 19:10 from GVA  
-
 ---
-
-## 💡 Smart Travel Strategy: Wardrobe Timelines & Micro-Climates
-*   **Bespoke Wedding Timeline:** Your garments are commissioned on **Day 2**, fitted on **Day 3**, and completed for final pickup on **Day 12**. This gives the atelier a perfect 10-day production window while you explore the country.
-*   **Micro-Climate Packing:** You will experience three distinct climates. Saigon and Central Vietnam will be hot and tropical (pack lightweight linens). Pu Luong and Sapa will experience cool alpine mornings (pack layers and a light fleece). Sapa treks require sturdy hiking shoes with solid grip for muddy terrace paths.
-*   **Transit Hack:** Utilizing the domestic flight from Dien Bien (DIN) back to Saigon saves an arduous overland mountain drive, getting you back to the southern hub efficiently on the morning of August 3rd.
-
+## Wardrobe & Micro-Climates
+*   **Micro-Climate Packing:** You will experience three distinct climates. Saigon and Central Vietnam will be hot and tropical (pack lightweight linens). The Red River Delta and North Vietnam will be warm with occasional coastal breeze (pack light layers). Road-trip days mean comfortable driving clothes. The infinity sea experience requires waterproof bags and slip-on shoes you don't mind getting muddy.
 ---
+## Chronological Journey
+###  Day 1: Thursday, July 23 — Arrival in the South
+*   **Accommodation:** [La Siesta Premium Saigon](https://www.google.com/maps/search/?api=1&query=la+siesta+premium+saigon) | Price: ~120 CHF | Status: 🔴 Not Booked
+*   **Activity:** [SGN Airport Arrival](https://www.google.com/maps/search/?api=1&query=Tan+Son+Nhat+International+Airport). Private taxi to District 1.
+*   **Activity:** [Saigon Sunset Walk](https://www.google.com/maps/search/?api=1&query=Saigon+Notre-Dame+Basilica) down Dong Khoi street.
+*   **Activity:** Visit the iconic pink [Nhà Thờ Giáo Xứ Tân Định](https://www.google.com/maps/search/?api=1&query=Nhà+Thờ+Giáo+Xứ+Tân+Định) for golden-hour photography.
+*   **Unique Food:** Welcome Dinner at [Cuc Gach Quan](https://www.google.com/maps/search/?api=1&query=Cuc+Gach+Quan+Saigon) — authentic southern cuisine inside a restored French-colonial villa.
 
-## 📅 Chronological Journey
+###  Day 2: Friday, July 24 — Heritage & Tailoring
+*   **Accommodation:** [La Siesta Premium Saigon](https://www.google.com/maps/search/?api=1&query=la+siesta+premium+saigon) | Price: ~120 CHF | Status: 🔴 Not Booked
+*   **Activity:** [Visit Chou Bridal](https://www.google.com/maps/search/?api=1&query=Chou+Bridal+Ho+Chi+Minh) — Individual bespoke measurement sessions for wedding attire.
+*   **Unique Food:** Lunch at [Hoàng's Kitchen](https://www.google.com/maps/search/?api=1&query=Hoangs+Kitchen+Saigon) for traditional options.
+*   **Wellness:** Evening traditional Vietnamese full-body massage at [L'Apothiquaire Spa](https://www.google.com/maps/search/?api=1&query=LApothiquaire+Spa+Saigon+district+3).
+*   **Activity:** Late evening stroll through the illuminated streets of District 1.
 
-### 🏙️ Day 1: Thursday, July 23 — Arrival in the South
-*   **Accommodation:** [La Siesta Premium Saigon](https://www.google.com/maps/search/?api=1&query=La+Siesta+Premium+Saigon) | Price: ~120 CHF | Status: 🔴 Not Booked
-*   **Activity:** [SGN Airport Arrival & Private Transfer](https://www.google.com/maps/search/?api=1&query=Tan+Son+Nhat+International+Airport).
-*   **Activity:** 🌆 [Saigon Sunset Walk](https://www.google.com/maps/search/?api=1&query=Saigon+Notre-Dame+Basilica) down Dong Khoi street.
-*   **Unique Food:** Welcome Dinner at [Cuc Gach Quan](https://www.google.com/maps/search/?api=1&query=Cuc+Gach+Quan+Saigon) — authentic southern cuisine, including real *canh chua* (traditional sour soup) inside a restored French-colonial villa.
+###  Day 3: Saturday, July 25 — Tunnels & Southern History
+*   **Accommodation:** [La Siesta Premium Saigon](https://www.google.com/maps/search/?api=1&query=la+siesta+premium+saigon) | Price: ~120 CHF | Status: 🔴 Not Booked
+*   **Activity:** Morning trip to the historic [Cu Chi Tunnels](https://www.google.com/maps/search/?api=1&query=Cu+Chi+Tunnels) — half-day guided excursion.
+*   **Activity:** Afternoon return to the city for last-minute Saigon exploration — art cafés and colonial architecture.
+*   **Unique Food:** Celebratory dinner at [The Refinery Saigon](https://www.google.com/maps/search/?api=1&query=The+Refinery+Saigon) — brasserie-style dining in a restored opium factory.
+*   **Activity:** Pack and prepare for tomorrow's flight to Central Vietnam.
 
-### 🏙️ Day 2: Friday, July 24 — Heritage & Tailoring
-*   **Accommodation:** [La Siesta Premium Saigon](https://www.google.com/maps/search/?api=1&query=La+Siesta+Premium+Saigon) | Price: ~120 CHF | Status: 🔴 Not Booked
-*   **Activity:** ✂️ [Tailoring Consultation #1](https://www.google.com/maps/search/?api=1&query=Yoyo+Custom+Tailor+Ho+Chi+Minh) — Individual bespoke measurement sessions for wedding attire.
-*   **Activity:** Culture exploration at the [War Remnants Museum](https://www.google.com/maps/search/?api=1&query=War+Remnants+Museum+Saigon).
-*   **Unique Food:** Lunch at [Secret Garden Rooftop Restaurant](https://www.google.com/maps/search/?api=1&query=Secret+Garden+Home-cooked+Vietnamese+Restaurant) for clean, high-protein traditional options.
-*   **Wellness:** Evening traditional Vietnamese full-body massage at [L'Apothiquaire Spa](https://www.google.com/maps/search/?api=1&query=LApothiquaire+Spa+Saigon).
+###  Day 4: Sunday, July 26 — Da Nang Region & Lantern Town Arrival
+*   **Accommodation:** [Nghê Prana Hotel & Spa Hoi An](https://www.google.com/maps/search/?api=1&query=Nghê+Prana+Hotel+Spa+Hoi+An) | Price: ~95 CHF | Status: 🔴 Not Booked
+*   **Transit:** Morning taxi to [Tan Son Nhat Airport](https://www.google.com/maps/search/?api=1&query=Tan+Son+Nhat+International+Airport), fly to [Da Nang International Airport](https://www.google.com/maps/search/?api=1&query=Da+Nang+International+Airport).
+*   **Transit:** 🚗 Pick up rental car at Da Nang airport. Self-drive 30 km south to Hoi An.
+*   **Activity:** Check in to your riverside boutique spa hotel. Afternoon relaxation by the pool.
+*   **Activity:** Evening walk through [Hoi An Ancient Town](https://www.google.com/maps/search/?api=1&query=Hoi+An+Ancient+Town) as silk lanterns begin to glow.
+*   **Activity:** Board a small wooden skiff for a [Hoai River boat](https://www.google.com/maps/search/?api=1&query=Hoai+River+Hoi+An) ride through the lantern-lit waterways.
 
-### 🏙️ Day 3: Saturday, July 25 — Tunnels to Royal Citadel
-*   **Accommodation:** [Ancient Hue Garden Houses](https://www.google.com/maps/search/?api=1&query=Ancient+Hue+Garden+Houses) | Price: ~160 CHF | Status: 🔴 Not Booked
-*   **Activity:** ✂️ [Tailoring Consultation #2](https://www.google.com/maps/search/?api=1&query=Yoyo+Custom+Tailor+Ho+Chi+Minh) — Rapid mid-process adjustments.
-*   **Activity:** Morning trip to the historic [Cu Chi Tunnels](https://www.google.com/maps/search/?api=1&query=Cu+Chi+Tunnels).
-*   **Activity:** [Transit back to SGN for afternoon flight](https://www.google.com/maps/search/?api=1&query=Tan+Son+Nhat+International+Airport) to Central Vietnam, then drive to your unique heritage Hue hotel. 
-
-### 🏮 Day 4: Sunday, July 26 — Imperial Hue
-*   **Accommodation:** [Ancient Hue Garden Houses](https://www.google.com/maps/search/?api=1&query=Ancient+Hue+Garden+Houses) | Price: ~160 CHF | Status: 🔴 Not Booked
-*   **Activity:** Guided exploration of the UNESCO-listed [Hue Imperial Citadel](https://www.google.com/maps/search/?api=1&query=Imperial+Citadel+Hue).
-*   **Unique Food:** 👑 [Royal Cuisine Lunch](https://www.google.com/maps/search/?api=1&query=Ancient+Hue+Garden+Houses+Restaurant) featuring highly visual, traditional multi-course dining dishes.
-*   **Activity:** Relaxing afternoon dragon boat trip along the [Perfume River](https://www.google.com/maps/search/?api=1&query=Perfume+River+Hue).
-
-### 🏮 Day 5: Monday, July 27 — The Legendary Pass to Lantern Town
-*   **Accommodation:** [Anantara Hoi An Resort](https://www.google.com/maps/search/?api=1&query=Anantara+Hoi+An+Resort) | Price: 198 CHF | Status: 🔴 Not Booked
-*   **Activity:** Early view of the [Thien Mu Pagoda](https://www.google.com/maps/search/?api=1&query=Thien+Mu+Pagoda+Hue) overlooking the river.
-*   **Activity:** ✅ [Scenic Train Journey](https://www.google.com/maps/search/?api=1&query=Hai+Van+Pass+Train): Board the coastal train from Hue down across the dramatic [Hai Van Pass Scenic Drive](https://www.google.com/maps/search/?api=1&query=Hai+Van+Pass) directly into Da Nang station.
-*   **Activity:** Quick transfer stop at the spectacular [Marble Mountains](https://www.google.com/maps/search/?api=1&query=Marble+Mountains+Da+Nang) to see natural caves and panoramic views of the Infinite Sea.
-*   **Activity:** [Hoi An Ancient Town Arrival](https://www.google.com/maps/search/?api=1&query=Hoi+An+Ancient+Town) — Check into Anantara Hoi An Resort. Evening walk as lanterns begin to light up.
-
-### 🏮 Day 6: Tuesday, July 28 — The Full Moon Lantern Festival
-*   **Accommodation:** [Anantara Hoi An Resort](https://www.google.com/maps/search/?api=1&query=Anantara+Hoi+An+Resort) | Price: 198 CHF | Status: 🔴 Not Booked
-*   **Activity:** Morning organic market tour and [Hoi An Cooking Class](https://www.google.com/maps/search/?api=1&query=Red+Bridge+Cooking+School+Hoi+An).
-*   **Activity:** 🌕 [LANTERN FESTIVAL NIGHT](https://www.google.com/maps/search/?api=1&query=Hoi+An+Ancient+Town) — Full moon walking exploration through the vehicle-free core of the Ancient Town.
-*   **Activity:** Board a small wooden skiff to launch [hand-lit floating paper lanterns](https://www.google.com/maps/search/?api=1&query=Hoai+River+Hoi+An) onto the Hoai River.
+###  Day 5: Monday, July 27 — Cooking Class & 🕯️ Candle Festival Night
+*   **Accommodation:** [Nghê Prana Hotel & Spa Hoi An](https://www.google.com/maps/search/?api=1&query=Nghê+Prana+Hotel+Spa+Hoi+An) | Price: ~95 CHF | Status: 🔴 Not Booked
+*   **Activity:** Morning organic market tour and [Hoi An Cooking Class](https://www.google.com/maps/search/?api=1&query=Red+Bridge+Cooking+School+Hoi+An) at Red Bridge.
+*   **Activity:** Behind-the-scenes visit to the traditional [Silk Village Hoi An](https://www.google.com/maps/search/?api=1&query=Hoi+An+Silk+Village).
+*   **Activity:** 🏖️ Afternoon beach escape to [An Bang Beach](https://www.google.com/maps/search/?api=1&query=An+Bang+Beach) — 10-minute drive from your hotel.
+*   **Activity:** 🕯️ **HOI AN CANDLE FESTIVAL** — As dusk falls, the Ancient Town extinguishes all electric lights. Thousands of hand-lit candles and silk lanterns illuminate the vehicle-free streets. Float your own candle-lit paper lantern onto the river, watch traditional folk performances, and wander the glowing alleyways.
 *   **Unique Food:** Try famous local dishes like Cao Lau and banh mi at [Banh Mi Phuong](https://www.google.com/maps/search/?api=1&query=Banh+Mi+Phuong+Hoi+An).
-
-### 🏮 Day 7: Wednesday, July 29 — Silk & Sand
-*   **Accommodation:** [Anantara Hoi An Resort](https://www.google.com/maps/search/?api=1&query=Anantara+Hoi+An+Resort) | Price: 198 CHF | Status: 🔴 Not Booked
-*   **Activity:** Behind-the-scenes visit to a traditional [Hoi An Silk Workshop](https://www.google.com/maps/search/?api=1&query=Hoi+An+Silk+Village).
-*   **Activity:** Afternoon beach escape to 🏖️ [An Bang Beach Relaxation](https://www.google.com/maps/search/?api=1&query=An+Bang+Beach).
-*   **Unique Food:** Fresh seaside grilled catch for a late lunch, followed by a [signature Thu Bon Riverside dinner](https://www.google.com/maps/search/?api=1&query=Thu+Bon+River+Hoi+An).
 *   **Wellness:** [Oceanfront herbal compress massage session](https://www.google.com/maps/search/?api=1&query=An+Bang+Beach+Spa).
 
-### 🏮 Day 8: Thursday, July 30 — Peninsula Luxury Escape
-*   **Accommodation:** [InterContinental Danang Sun Peninsula Resort](https://www.google.com/maps/search/?api=1&query=InterContinental+Danang+Sun+Peninsula+Resort) | Price: 252 CHF | Status: 🔴 Not Booked
-*   **Activity:** [Check-in to your luxury sanctuary](https://www.google.com/maps/search/?api=1&query=InterContinental+Danang+Sun+Peninsula+Resort) isolated on the Son Tra Peninsula. Spend your day enjoying 🏊 [Private Beach & Infinity Pools](https://www.google.com/maps/search/?api=1&query=InterContinental+Danang+Sun+Peninsula+Resort).
+###  Day 6: Tuesday, July 28 — Golden Bridge & Peninsula Luxury
+*   **Accommodation:** [InterContinental Danang Sun Peninsula Resort](https://www.google.com/maps/search/?api=1&query=InterContinental+Danang+Sun+Peninsula+Resort) | Price: ~250 CHF | Status: 🔴 Not Booked
+*   **Activity:** Check out Hoi An. 🚗 Self-drive north via the dramatic coastal [Hải Vân Pass](https://www.google.com/maps/search/?api=1&query=Hai+Van+Pass) — stop at panoramic viewpoints.
+*   **Activity:** Explore the caves and pagodas of [The Marble Mountains](https://www.google.com/maps/search/?api=1&query=Marble+Mountains+Da+Nang).
+*   **Activity:** Ascend to the [Golden Bridge](https://www.google.com/maps/search/?api=1&query=Golden+Bridge+Ba+Na+Hills) held by giant stone hands at Ba Na Hills.
+*   **Activity:** Check in to your luxury sanctuary isolated on the Son Tra Peninsula. Spend late afternoon enjoying [Private Beach & Infinity Pools](https://www.google.com/maps/search/?api=1&query=InterContinental+Danang+Sun+Peninsula+Resort).
 *   **Unique Food:** 🍽️ World-class fine dining tonight at [La Maison 1888](https://www.google.com/maps/search/?api=1&query=La+Maison+1888+InterContinental+Danang) by multi-Michelin-starred master chefs.
 
-### 🌾 Day 9: Friday, July 31 — Into Ha Long on Land
-*   **Accommodation:** [Emeralda Resort Ninh Binh](https://www.google.com/maps/search/?api=1&query=Emeralda+Resort+Ninh+Binh) | Price: 135 CHF | Status: 🔴 Not Booked
-*   **Activity:** [Morning flight up to Hanoi](https://www.google.com/maps/search/?api=1&query=Noi+Bai+International+Airport), followed by a direct highway transfer into Ninh Binh — "Ha Long on Land".
-*   **Activity:** 🛶 [Trang An Boat Tour](https://www.google.com/maps/search/?api=1&query=Trang+An+Grottoes) — Experience its inland cousin: Trang An's emerald river system winding through limestone karsts. Row through ancient caves.
-*   **Activity:** 🏔️ [Mua Cave Viewpoint Sunset](https://www.google.com/maps/search/?api=1&query=Hang+Mua+Ninh+Binh) — Climb Mua Cave's 500 steps for a dragon's-eye view. Stay at a luxury eco-resort surrounded by rice paddies.
+###  Day 7: Wednesday, July 29 — Flight to the North & The Infinite Sea
+*   **Accommodation:** *Proposed:* [Selegend Hotel Thái Bình](https://www.google.com/maps/search/?api=1&query=Selegend+Hotel+Thai+Binh) or [Tru by Hilton Thai Binh City Centre](https://www.google.com/maps/search/?api=1&query=Tru+by+Hilton+Thai+Binh+City+Centre) | Price: ~65 CHF | Status: 🔴 Not Booked
+*   **Transit:** Morning check out. 🚗 Drive to [Da Nang Airport](https://www.google.com/maps/search/?api=1&query=Da+Nang+International+Airport), drop rental car. Fly to [Hanoi Airport](https://www.google.com/maps/search/?api=1&query=Noi+Bai+International+Airport).
+*   **Transit:** 🚗 Pick up new rental car at Noi Bai. Drive ~2 hours east to Thái Bình city.
+*   **Activity:** Check in to your Thái Bình hotel. Afternoon exploration of the city — visit Chùa Keo, one of Vietnam's most beautiful ancient pagodas.
+*   **Unique Food:** Thái Bình specialties for dinner — bánh khúc (sticky rice dumplings) and gỏi nhệch (jellyfish salad).
+*   **Note:** Set multiple alarms. Tomorrow's infinity sea experience requires a 4:00 AM departure.
 
-### 🌾 Day 10: Saturday, August 1 — Deep Pu Luong Valley
-*   **Accommodation:** [Pu Luong Retreat](https://www.google.com/maps/search/?api=1&query=Pu+Luong+Retreat) | Price: 108 CHF | Status: 🔴 Not Booked
+###  Day 8: Thursday, July 30 — 🌅 The Infinite Sea at Dawn
+*   **Accommodation:** [Emeralda Resort Ninh Binh](https://www.google.com/maps/search/?api=1&query=Emeralda+Resort+Ninh+Binh) | Price: ~135 CHF | Status: 🔴 Not Booked
+*   **Activity:** 🌅 **4:00 AM DEPARTURE** — Drive from Thái Bình city to [Biển Vô Cực Thái Bình](https://www.google.com/maps/search/?api=1&query=Biển+Vô+Cực+Thái+Bình) (~45 mins). Walk 1.5 km barefoot through the mangrove forest to reach the tidal flats.
+*   **Activity:** Witness the "infinity effect" — as the tide recedes to ankle-deep, the vast mudflat becomes a giant mirror reflecting the sky, erasing the horizon. Fishermen silhouetted against the dawn. This is a 15-minute golden window for photography.
+*   **Activity:** Return to hotel for late breakfast and rest. Check out by noon.
+*   **Transit:** 🚗 Drive Thái Bình → Ninh Binh (~2 hours).
+*   **Activity:** Check in to [Emeralda Resort](https://www.google.com/maps/search/?api=1&query=Emeralda+Resort+Ninh+Binh). Relax in the eco-resort surrounded by rice paddies.
+*   **Unique Food:** Ninh Binh specialty dinner — crispy rice with mountain goat.
+
+###  Day 9: Friday, July 31 — Ha Long on Land
+*   **Accommodation:** [Pu Luong Retreat](https://www.google.com/maps/search/?api=1&query=Pu+Luong+Retreat) | Price: ~108 CHF | Status: 🔴 Not Booked
+*   **Activity:** 🛶 [Trang An Boat Tour](https://www.google.com/maps/search/?api=1&query=Trang+An+Grottoes) — Row through emerald river systems winding through limestone karsts and ancient caves.
+*   **Activity:** 🏔️ Sunset climb at [Hang Múa](https://www.google.com/maps/search/?api=1&query=Hang+Mua+Ninh+Binh) — 500 steps for a dragon's-eye view over the rice paddies.
 *   **Activity:** Morning rowboat exploration of the quiet, moss-covered waters around [Bich Dong Pagoda](https://www.google.com/maps/search/?api=1&query=Bich+Dong+Pagoda).
-*   **Activity:** ✅ **Son Doong Cave Expedition (Regional Alternative):** Instead of the multi-day lottery trekking route, discover the immense, cavernous chambers of the local [Pu Luong Nature Retreat](https://www.google.com/maps/search/?api=1&query=Pu+Luong+Nature+Reserve) river caves and hidden eco-resort trails.
+*   **Transit:** 🚗 Scenic drive west to Pu Luong Nature Reserve (~3 hours).
+*   **Activity:** [Pu Luong Nature Reserve](https://www.google.com/maps/search/?api=1&query=Pu+Luong+Nature+Reserve) — discover hidden eco-resort trails and river caves.
+*   **Activity:** Late afternoon viewpoint trek to [One View Kho Mường](https://www.google.com/maps/search/?api=1&query=One+View+Kho+Muong) overlooking the valley.
 *   **Unique Food:** [Traditional farm-to-table banquet](https://www.google.com/maps/search/?api=1&query=Pu+Luong+Retreat+Restaurant) featuring roasted hill-duck and local wild mountain herbs.
 
-### 🌾 Day 11: Sunday, August 2 — Mu Cang Chai Terraces to Sapa
-*   **Accommodation:** [Topas Ecolodge Sapa](https://www.google.com/maps/search/?api=1&query=Topas+Ecolodge+Sapa) | Price: 180 CHF | Status: 🔴 Not Booked
-*   **Activity:** ☁️ Pre-dawn mountain transfer for the legendary [Mu Cang Chai & Ta Xua cloud hunting](https://www.google.com/maps/search/?api=1&query=Ta+Xua+Dinosaur+Spine) sunrise over the ridgeline.
-*   **Activity:** [Sapa Rice Field Immersion](https://www.google.com/maps/search/?api=1&query=Topas+Ecolodge+Sapa) — Arrive at Topas Ecolodge perched on a hilltop with 360° views.
-*   **Unique Food:** 🌾 [Rice Field Lunch Experience](https://www.google.com/maps/search/?api=1&query=Topas+Ecolodge+Restaurant) — Farm-to-table lunch served overlooking the terraces. Authentic highland cuisine.
-*   **Unique Food:** [Local homestay dinner](https://www.google.com/maps/search/?api=1&query=Ta+Van+Village+Sapa) with rice wine in the evening.
+###  Day 10: Saturday, August 1 — Mu Cang Chai Terraces
+*   **Accommodation:** *Proposed:* Mu Cang Chai Ecolodge (e.g., Le Champ Tu Le Resort or similar boutique mountain lodge) | Price: ~85 CHF | Status: 🔴 Not Booked
+*   **Activity:** Morning short trek around Pu Luong's rice terraces before departure.
+*   **Transit:** 🚗 Spectacular mountain road trip northwest to Mu Cang Chai (~4.5 hours).
+*   **Activity:** [Rice Tray Viewpoint Mâm Xôi](https://www.google.com/maps/search/?api=1&query=Rice+Tray+Viewpoint+Mu+Cang+Chai) — iconic layered rice terrace panorama.
+*   **Activity:** [Móng ngựa Mù Cang Chải](https://www.google.com/maps/search/?api=1&query=Mong+ngua+Mu+Cang+Chai) — the legendary "horse hoof" viewpoint at sunset.
+*   **Unique Food:** Authentic Thai ethnic minority cuisine — grilled stream fish and bamboo rice.
 
-### 🌾 Day 12: Monday, August 3 — Sunrise Trek & Return to Saigon
-*   **Accommodation:** [La Siesta Premium Saigon](https://www.google.com/maps/search/?api=1&query=La+Siesta+Premium+Saigon) | Price: ~120 CHF | Status: 🔴 Not Booked
-*   **Activity:** 🌅 [Sunrise trek through Muong Hoa Valley](https://www.google.com/maps/search/?api=1&query=Muong+Hoa+Valley+Sapa) — Trek through legendary terraced rice fields at sunrise, meet local Hmong farmers, visit Black Hmong & Red Dao villages, and participate in a traditional rice harvesting experience.
-*   **Wellness:** A [soothing post-trek hot spring soak](https://www.google.com/maps/search/?api=1&query=Red+Dao+Herbal+Bath+Sapa) with mountain views.
-*   **Activity:** ✅ **Back in Saigon morning of August 3rd:** [Transfer out to the local airport](https://www.google.com/maps/search/?api=1&query=Dien+Bien+Phu+Airport) hub for your flight back south to Ho Chi Minh City. Head directly to the studio for your final ✂️ [Tailoring Product Collection](https://www.google.com/maps/search/?api=1&query=Yoyo+Custom+Tailor+Ho+Chi+Minh).
+###  Day 11: Sunday, August 2 — Cloud Hunting & Return to Hanoi
+*   **Accommodation:** *Proposed:* [La Siesta Premium Hang Be](https://www.google.com/maps/search/?api=1&query=La+Siesta+Premium+Hang+Be+Hanoi) (Hanoi Old Quarter) — or similar boutique city hotel | Price: ~75 CHF | Status: 🔴 Not Booked
+*   **Activity:** ☁️ Pre-dawn drive to [Ta Xua Nature Reserve](https://www.google.com/maps/search/?api=1&query=Ta+Xua+Nature+Reserve) for cloud hunting along the [Điểm cuối sống lưng khủng](https://www.google.com/maps/search/?api=1&query=Ta+Xua+Dinosaur+Spine) ridgeline.
+*   **Activity:** Morning trek through the cloud forest and panoramic ridge trails.
+*   **Activity:** Return to Mu Cang Chai for a relaxed afternoon — visit local Thai and H'mong villages, explore the town market for handicrafts.
+*   **Transit:** 🚗 Drive Mu Cang Chai → Hanoi (~5.5–6 hours). Drop rental car at city depot.
+*   **Activity:** Check in to your Hanoi boutique hotel. Evening stroll through the atmospheric Old Quarter — street food, egg coffee, and the buzz of Hoan Kiem Lake.
+*   **Unique Food:** Hanoi signature dinner — Cha Ca La Vong or Bun Cha.
+
+###  Day 12: Monday, August 3 — Early Flight to Saigon
+*   **Accommodation:** [La Siesta Premium Saigon](https://www.google.com/maps/search/?api=1&query=la+siesta+premium+saigon) | Price: ~120 CHF | Status: 🔴 Not Booked
+*   **Transit:** Early morning taxi to [Noi Bai Airport](https://www.google.com/maps/search/?api=1&query=Noi+Bai+International+Airport) (~45 mins). ✈️ Fly HAN → SGN. Arrive Saigon mid-morning.
+*   **Activity:** Taxi to hotel. Check in and freshen up.
+*   **Activity:** Afternoon final ✂️ Tailoring Product Collection at your Saigon studio.
+*   **Activity:** [Last-minute sourcing walkthrough](https://www.google.com/maps/search/?api=1&query=Ben+Thanh+Market+Saigon) for art items, silk keepsakes, and local gifts.
+*   **Activity:** Visit [Ruby Train Coffee](https://www.google.com/maps/search/?api=1&query=Ruby+Train+Coffee) — a quirky café inside a vintage railway carriage.
 *   **Unique Food:** Celebratory multi-course wedding farewell dinner at [The Refinery Saigon](https://www.google.com/maps/search/?api=1&query=The+Refinery+Saigon).
 
-### 🏙️ Day 13: Tuesday, August 4 — Final Pho & Departure
-*   **Activity:** [Last-minute sourcing walkthrough](https://www.google.com/maps/search/?api=1&query=Ben+Thanh+Market+Saigon) for art items, silk keepsakes, and local gifts.
+###  Day 13: Tuesday, August 4 — Final Pho & Departure
+*   **Activity:** Morning walk along the Saigon River.
 *   **Unique Food:** 🍜 Final traditional lunch bowl at the historic [Pho Hoa Pasteur](https://www.google.com/maps/search/?api=1&query=Pho+Hoa+Pasteur+Saigon).
-*   **Flight:** [International flight home](https://www.google.com/maps/search/?api=1&query=Tan+Son+Nhat+International+Airport) departs SGN at 15:00 bound for GVA.
+*   **Transit:** 🚕 Taxi to [Tan Son Nhat International Airport](https://www.google.com/maps/search/?api=1&query=Tan+Son+Nhat+International+Airport).
+*   **Flight:** International flight home departs SGN bound for GVA.
 
 ---
 
-## 🏨 Accommodation Index & Budget Control
+##  Accommodation Index & Budget Control
 
 | Property | Location | Nights | Price | Status | Link |
 | :--- | :--- | :---: | :---: | :--- | :--- |
-| **La Siesta Premium Saigon** | Ho Chi Minh City | 3 | ~120 CHF | 🔴 Not Booked | [Click to Link](https://www.google.com/maps/search/?api=1&query=La+Siesta+Premium+Saigon) |
-| **Ancient Hue Garden Houses** | Hue | 2 | ~160 CHF | 🔴 Not Booked | [Click to Link](https://www.google.com/maps/search/?api=1&query=Ancient+Hue+Garden+Houses) |
-| **Anantara Hoi An Resort** | Hoi An | 3 | 198 CHF | 🔴 Not Booked | [Click to Link](https://www.google.com/maps/search/?api=1&query=Anantara+Hoi+An+Resort) |
-| **InterContinental Sun Peninsula** | Da Nang | 1 | 252 CHF | 🔴 Not Booked | [Click to Link](https://www.google.com/maps/search/?api=1&query=InterContinental+Danang+Sun+Peninsula+Resort) |
-| **Emeralda Resort Ninh Binh** | Ninh Binh | 1 | 135 CHF | 🔴 Not Booked | [Click to Link](https://www.google.com/maps/search/?api=1&query=Emeralda+Resort+Ninh+Binh) |
-| **Pu Luong Retreat** | Pu Luong | 1 | 108 CHF | 🔴 Not Booked | [Click to Link](https://www.google.com/maps/search/?api=1&query=Pu+Luong+Retreat) |
-| **Topas Ecolodge** | Sapa | 1 | 180 CHF | 🔴 Not Booked | [Click to Link](https://www.google.com/maps/search/?api=1&query=Topas+Ecolodge+Sapa) |
+| **La Siesta Premium Saigon** | Ho Chi Minh City | 4 (split: 3 + 1) | ~120 CHF | 🔴 Not Booked | [Click to Link](https://www.google.com/maps/search/?api=1&query=la+siesta+premium+saigon) |
+| **Nghê Prana Hotel & Spa Hoi An** | Hoi An | 2 | ~95 CHF | 🔴 Not Booked | [Click to Link](https://www.google.com/maps/search/?api=1&query=Nghê+Prana+Hotel+Spa+Hoi+An) |
+| **InterContinental Sun Peninsula** | Da Nang | 1 | ~250 CHF | 🔴 Not Booked | [Click to Link](https://www.google.com/maps/search/?api=1&query=InterContinental+Danang+Sun+Peninsula+Resort) |
+| **Selegend Hotel Thái Bình** *(proposed)* | Thái Bình | 1 | ~65 CHF | 🔴 Not Booked | [Click to Link](https://www.google.com/maps/search/?api=1&query=Selegend+Hotel+Thai+Binh) |
+| **Emeralda Resort Ninh Binh** | Ninh Binh | 1 | ~135 CHF | 🔴 Not Booked | [Click to Link](https://www.google.com/maps/search/?api=1&query=Emeralda+Resort+Ninh+Binh) |
+| **Pu Luong Retreat** | Pu Luong | 1 | ~108 CHF | 🔴 Not Booked | [Click to Link](https://www.google.com/maps/search/?api=1&query=Pu+Luong+Retreat) |
+| **Mu Cang Chai Ecolodge** *(proposed)* | Mu Cang Chai | 1 | ~85 CHF | 🔴 Not Booked | [Click to Link](https://www.google.com/maps/search/?api=1&query=Mu+Cang+Chai+Ecolodge) |
+| **La Siesta Premium Hang Be** *(proposed)* | Hanoi | 1 | ~75 CHF | 🔴 Not Booked | [Click to Link](https://www.google.com/maps/search/?api=1&query=La+Siesta+Premium+Hang+Be+Hanoi) |
 
 ---
 
-## 🚆 Complete Transit Matrix (Point A to Point B)
+##  Complete Transit Matrix 
 
 | Day | Departure (Point A) | Destination (Point B) | Mode of Transport | Est. Distance / Time |
 | :--- | :--- | :--- | :--- | :--- |
 | **Day 1** | [Geneva Airport (GVA)](https://www.google.com/maps/search/?api=1&query=Geneva+Airport+GVA) | [Saigon Airport (SGN)](https://www.google.com/maps/search/?api=1&query=Tan+Son+Nhat+International+Airport) | ✈️ International Flight | ~12h 00m |
-| **Day 1** | [Saigon Airport (SGN)](https://www.google.com/maps/search/?api=1&query=Tan+Son+Nhat+International+Airport) | [La Siesta Premium Saigon](https://www.google.com/maps/search/?api=1&query=La+Siesta+Premium+Saigon) | 🚗 Private Transfer | 8 km (~30 mins) |
-| **Day 3** | [La Siesta Premium Saigon](https://www.google.com/maps/search/?api=1&query=La+Siesta+Premium+Saigon) | [Cu Chi Tunnels](https://www.google.com/maps/search/?api=1&query=Cu+Chi+Tunnels) | 🚗 Car / Minivan | 60 km (~1h 30m) |
-| **Day 3** | [Cu Chi Tunnels](https://www.google.com/maps/search/?api=1&query=Cu+Chi+Tunnels) | [Saigon Airport (SGN)](https://www.google.com/maps/search/?api=1&query=Tan+Son+Nhat+International+Airport) | 🚗 Car / Minivan | 55 km (~1h 20m) |
-| **Day 3** | [Saigon Airport (SGN)](https://www.google.com/maps/search/?api=1&query=Tan+Son+Nhat+International+Airport) | [Da Nang Airport (DAD)](https://www.google.com/maps/search/?api=1&query=Da+Nang+International+Airport) | ✈️ Domestic Flight | 600 km (~1h 20m) |
-| **Day 3** | [Da Nang Airport (DAD)](https://www.google.com/maps/search/?api=1&query=Da+Nang+International+Airport) | [Ancient Hue Garden Houses](https://www.google.com/maps/search/?api=1&query=Ancient+Hue+Garden+Houses) | 🚗 Private Transfer | 100 km (~2h 30m) |
-| **Day 5** | [Hue Railway Station](https://www.google.com/maps/search/?api=1&query=Hue+Railway+Station) | [Da Nang Station](https://www.google.com/maps/search/?api=1&query=Da+Nang+Railway+Station) | 🚂 Scenic Train | 100 km (~2h 30m) |
-| **Day 5** | [Da Nang Station](https://www.google.com/maps/search/?api=1&query=Da+Nang+Railway+Station) | [Anantara Hoi An](https://www.google.com/maps/search/?api=1&query=Anantara+Hoi+An+Resort) | 🚗 Private Transfer | 30 km (~45 mins) |
-| **Day 7** | [Anantara Hoi An](https://www.google.com/maps/search/?api=1&query=Anantara+Hoi+An+Resort) | [An Bang Beach](https://www.google.com/maps/search/?api=1&query=An+Bang+Beach) | 🚗 Taxi / Car | 5 km (~10 mins) |
-| **Day 8** | [Anantara Hoi An](https://www.google.com/maps/search/?api=1&query=Anantara+Hoi+An+Resort) | [InterContinental Sun Peninsula](https://www.google.com/maps/search/?api=1&query=InterContinental+Danang+Sun+Peninsula+Resort) | 🚗 Private Transfer | 35 km (~50 mins) |
-| **Day 9** | [InterContinental Sun Peninsula](https://www.google.com/maps/search/?api=1&query=InterContinental+Danang+Sun+Peninsula+Resort) | [Da Nang Airport (DAD)](https://www.google.com/maps/search/?api=1&query=Da+Nang+International+Airport) | 🚗 Private Transfer | 20 km (~35 mins) |
-| **Day 9** | [Da Nang Airport (DAD)](https://www.google.com/maps/search/?api=1&query=Da+Nang+International+Airport) | [Hanoi Airport (HAN)](https://www.google.com/maps/search/?api=1&query=Noi+Bai+International+Airport) | ✈️ Domestic Flight | 600 km (~1h 30m) |
-| **Day 9** | [Hanoi Airport (HAN)](https://www.google.com/maps/search/?api=1&query=Noi+Bai+International+Airport) | [Emeralda Resort Ninh Binh](https://www.google.com/maps/search/?api=1&query=Emeralda+Resort+Ninh+Binh) | 🚗 Private Transfer | 120 km (~2h 15m) |
-| **Day 10** | [Emeralda Resort Ninh Binh](https://www.google.com/maps/search/?api=1&query=Emeralda+Resort+Ninh+Binh) | [Pu Luong Retreat](https://www.google.com/maps/search/?api=1&query=Pu+Luong+Retreat) | 🚗 Scenic Drive | 110 km (~3h 00m) |
-| **Day 11** | [Pu Luong Retreat](https://www.google.com/maps/search/?api=1&query=Pu+Luong+Retreat) | [Topas Ecolodge Sapa](https://www.google.com/maps/search/?api=1&query=Topas+Ecolodge+Sapa) | 🚗 Mountain Drive | 190 km (~5h 00m) |
-| **Day 12** | [Topas Ecolodge Sapa](https://www.google.com/maps/search/?api=1&query=Topas+Ecolodge+Sapa) | [Dien Bien Airport (DIN)](https://www.google.com/maps/search/?api=1&query=Dien+Bien+Phu+Airport) | 🚗 Mountain Transfer | 190 km (~4h 45m) |
-| **Day 12** | [Dien Bien Airport (DIN)](https://www.google.com/maps/search/?api=1&query=Dien+Bien+Phu+Airport) | [Saigon Airport (SGN)](https://www.google.com/maps/search/?api=1&query=Tan+Son+Nhat+International+Airport) | ✈️ Domestic Flight | 1,100 km (~2h 00m) |
-| **Day 12** | [Saigon Airport (SGN)](https://www.google.com/maps/search/?api=1&query=Tan+Son+Nhat+International+Airport) | [La Siesta Premium Saigon](https://www.google.com/maps/search/?api=1&query=La+Siesta+Premium+Saigon) | 🚗 Private Transfer | 8 km (~30 mins) |
-| **Day 13** | [La Siesta Premium Saigon](https://www.google.com/maps/search/?api=1&query=La+Siesta+Premium+Saigon) | [Saigon Airport (SGN)](https://www.google.com/maps/search/?api=1&query=Tan+Son+Nhat+International+Airport) | 🚗 Private Transfer | 8 km (~25 mins) |
+| **Day 1** | [Saigon Airport (SGN)](https://www.google.com/maps/search/?api=1&query=Tan+Son+Nhat+International+Airport) | [La Siesta Premium Saigon](https://www.google.com/maps/search/?api=1&query=la+siesta+premium+saigon) | 🚕 Taxi | 8 km (~30 mins) |
+| **Day 3** | [La Siesta Premium Saigon](https://www.google.com/maps/search/?api=1&query=la+siesta+premium+saigon) | [Cu Chi Tunnels](https://www.google.com/maps/search/?api=1&query=Cu+Chi+Tunnels) | 🚕 Private Tour / Taxi | 60 km (~1h 30m) |
+| **Day 4** | [La Siesta Premium Saigon](https://www.google.com/maps/search/?api=1&query=la+siesta+premium+saigon) | [Tan Son Nhat Airport (SGN)](https://www.google.com/maps/search/?api=1&query=Tan+Son+Nhat+International+Airport) | 🚕 Taxi | 8 km (~25 mins) |
+| **Day 4** | [Saigon Airport (SGN)](https://www.google.com/maps/search/?api=1&query=Tan+Son+Nhat+International+Airport) | [Da Nang Airport (DAD)](https://www.google.com/maps/search/?api=1&query=Da+Nang+International+Airport) | ✈️ Domestic Flight | 600 km (~1h 20m) |
+| **Day 4** | [Da Nang Airport (DAD)](https://www.google.com/maps/search/?api=1&query=Da+Nang+International+Airport) | [Nghê Prana Hotel Hoi An](https://www.google.com/maps/search/?api=1&query=Nghê+Prana+Hotel+Spa+Hoi+An) | 🚗 Rental Car (Self-Drive) | 30 km (~45 mins) |
+| **Day 6** | [Nghê Prana Hoi An](https://www.google.com/maps/search/?api=1&query=Nghê+Prana+Hotel+Spa+Hoi+An) | [InterContinental Danang](https://www.google.com/maps/search/?api=1&query=InterContinental+Danang+Sun+Peninsula+Resort) | 🚗 Rental Car (via Hai Van Pass, Marble Mountains, Ba Na Hills) | 120 km (~3h 30m incl. stops) |
+| **Day 7** | [InterContinental Danang](https://www.google.com/maps/search/?api=1&query=InterContinental+Danang+Sun+Peninsula+Resort) | [Da Nang Airport (DAD)](https://www.google.com/maps/search/?api=1&query=Da+Nang+International+Airport) | 🚗 Rental Car (Self-Drive) | 20 km (~35 mins) |
+| **Day 7** | [Da Nang Airport (DAD)](https://www.google.com/maps/search/?api=1&query=Da+Nang+International+Airport) | [Hanoi Airport (HAN)](https://www.google.com/maps/search/?api=1&query=Noi+Bai+International+Airport) | ✈️ Domestic Flight | 600 km (~1h 30m) |
+| **Day 7** | [Hanoi Airport (HAN)](https://www.google.com/maps/search/?api=1&query=Noi+Bai+International+Airport) | [Thái Bình Hotel](https://www.google.com/maps/search/?api=1&query=Selegend+Hotel+Thai+Binh) | 🚗 Rental Car (Self-Drive) | 120 km (~2h 00m) |
+| **Day 8** | [Thái Bình Hotel](https://www.google.com/maps/search/?api=1&query=Selegend+Hotel+Thai+Binh) | [Biển Vô Cực](https://www.google.com/maps/search/?api=1&query=Biển+Vô+Cực+Thái+Bình) | 🚗 Rental Car (Self-Drive) | 45 km (~45 mins) |
+| **Day 8** | [Thái Bình Hotel](https://www.google.com/maps/search/?api=1&query=Selegend+Hotel+Thai+Binh) | [Emeralda Resort Ninh Binh](https://www.google.com/maps/search/?api=1&query=Emeralda+Resort+Ninh+Binh) | 🚗 Rental Car (Self-Drive) | 100 km (~2h 00m) |
+| **Day 9** | [Emeralda Resort Ninh Binh](https://www.google.com/maps/search/?api=1&query=Emeralda+Resort+Ninh+Binh) | [Pu Luong Retreat](https://www.google.com/maps/search/?api=1&query=Pu+Luong+Retreat) | 🚗 Rental Car (Self-Drive) | 110 km (~3h 00m) |
+| **Day 10** | [Pu Luong Retreat](https://www.google.com/maps/search/?api=1&query=Pu+Luong+Retreat) | [Mu Cang Chai Ecolodge](https://www.google.com/maps/search/?api=1&query=Mu+Cang+Chai+Ecolodge) | 🚗 Rental Car (Self-Drive) | 180 km (~4h 30m) |
+| **Day 11** | [Mu Cang Chai Ecolodge](https://www.google.com/maps/search/?api=1&query=Mu+Cang+Chai+Ecolodge) | [Hanoi Old Quarter Hotel](https://www.google.com/maps/search/?api=1&query=La+Siesta+Premium+Hang+Be+Hanoi) | 🚗 Rental Car (Self-Drive) | 280 km (~5h 30m) |
+| **Day 12** | [Hanoi Hotel](https://www.google.com/maps/search/?api=1&query=La+Siesta+Premium+Hang+Be+Hanoi) | [Noi Bai Airport (HAN)](https://www.google.com/maps/search/?api=1&query=Noi+Bai+International+Airport) | 🚕 Taxi | 28 km (~45 mins) |
+| **Day 12** | [Hanoi Airport (HAN)](https://www.google.com/maps/search/?api=1&query=Noi+Bai+International+Airport) | [Saigon Airport (SGN)](https://www.google.com/maps/search/?api=1&query=Tan+Son+Nhat+International+Airport) | ✈️ Domestic Flight | ~2h 00m |
+| **Day 12** | [Saigon Airport (SGN)](https://www.google.com/maps/search/?api=1&query=Tan+Son+Nhat+International+Airport) | [La Siesta Premium Saigon](https://www.google.com/maps/search/?api=1&query=la+siesta+premium+saigon) | 🚕 Taxi | 8 km (~25 mins) |
+| **Day 13** | [La Siesta Premium Saigon](https://www.google.com/maps/search/?api=1&query=la+siesta+premium+saigon) | [Saigon Airport (SGN)](https://www.google.com/maps/search/?api=1&query=Tan+Son+Nhat+International+Airport) | 🚕 Taxi | 8 km (~25 mins) |
 | **Day 13** | [Saigon Airport (SGN)](https://www.google.com/maps/search/?api=1&query=Tan+Son+Nhat+International+Airport) | [Geneva Airport (GVA)](https://www.google.com/maps/search/?api=1&query=Geneva+Airport+GVA) | ✈️ International Flight | ~12h 00m |
