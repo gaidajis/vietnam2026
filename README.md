@@ -76,5 +76,5 @@
 
 ---
 >🟢 Booked 🟠 Found 🔴 Pending
->
+---
 > [Visual Website](https://chat.qwen.ai/s/deploy/t_6b37fca5-5ebe-4e31-ab78-ac499c3ae473)
