@@ -1,4 +1,4 @@
-# 🇻🇳 Vietnam 2026 · Wedding & Adventure Master Plan
+# 🇻🇳 Vietnam 2026 · Adventure Master Plan
 
 **Travelers:** Alice & Paris  
 **Dates:** July 23 — August 04, 2026 (13 days / 12 nights)  
