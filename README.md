@@ -1,8 +1,9 @@
 # 🇻🇳 Vietnam 2026 
 > ✈️ July 22, 19:10 Geneva
->
+> 
+> [The journey](https://chat.qwen.ai/s/deploy/t_8daad1d5-82bc-4c01-a16c-f1b80e4579ed) | 
 > [Google Maps](https://maps.app.goo.gl/Dv96DNc67hQurqmx9)
-
+>
 ## Journey
 
 ### Day 1: Thursday, July 23 —  Saigon
@@ -77,4 +78,3 @@
 ---
 >🟢 Booked 🟠 Found 🔴 Pending
 ---
-> [Visual Website](https://chat.qwen.ai/s/deploy/t_6b37fca5-5ebe-4e31-ab78-ac499c3ae473)
