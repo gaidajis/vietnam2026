@@ -5,6 +5,7 @@
 ## Wardrobe & Micro-Climates
 
 * **Micro-Climate Packing:** You will experience three distinct climates. Saigon and Central Vietnam will be hot and tropical (pack lightweight linens). The Red River Delta and North Vietnam will be warm with occasional coastal breeze (pack light layers). Road-trip days mean comfortable driving clothes. The infinity sea experience requires waterproof bags and slip-on shoes you don't mind getting muddy.
+* [Google Map](https://maps.app.goo.gl/pQZs8m1GDqvfDVS98)
 
 ---
 
